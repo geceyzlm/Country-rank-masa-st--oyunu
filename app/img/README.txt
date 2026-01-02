@@ -1,0 +1,1 @@
+img klasorune resimlerini koy
